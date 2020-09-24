@@ -1,1 +1,1 @@
-# repozitorija
+# repozitorija cia yra repozitorija nu
